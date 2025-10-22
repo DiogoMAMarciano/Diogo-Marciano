@@ -37,4 +37,4 @@ Tenho uma abordagem criativa na resolução de problemas e permaneço eficiente 
 
 ---
 
-✨ *“A melhor forma de aprender é construir.”*  
+✨ *“Learning by doing is the key to mastery.”*  
